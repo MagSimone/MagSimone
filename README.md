@@ -1,0 +1,3 @@
+- 👋 Ciao!, Sono MagSimone
+- 👀 Founder di "Los Angels RP"
+- 😄 Pronouns: He/Him
